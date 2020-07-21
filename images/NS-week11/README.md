@@ -1,2 +1,16 @@
 
 Natural slim week 11
+![Image of Yaktocat](https://github.com/weixiongdi/zhili-learn-english/blob/master/images/NS-week11/IMG_2700.JPG)
+![Image of Yaktocat](https://github.com/weixiongdi/zhili-learn-english/blob/master/images/NS-week11/IMG_2701.JPG)
+![Image of Yaktocat](https://github.com/weixiongdi/zhili-learn-english/blob/master/images/NS-week11/IMG_2702.JPG)
+![Image of Yaktocat](https://github.com/weixiongdi/zhili-learn-english/blob/master/images/NS-week11/IMG_2703.JPG)
+![Image of Yaktocat](https://github.com/weixiongdi/zhili-learn-english/blob/master/images/NS-week11/IMG_2704.JPG)
+![Image of Yaktocat](https://github.com/weixiongdi/zhili-learn-english/blob/master/images/NS-week11/IMG_2705.JPG)
+![Image of Yaktocat](https://github.com/weixiongdi/zhili-learn-english/blob/master/images/NS-week11/IMG_2706.JPG)
+![Image of Yaktocat](https://github.com/weixiongdi/zhili-learn-english/blob/master/images/NS-week11/IMG_2707.JPG)
+![Image of Yaktocat](https://github.com/weixiongdi/zhili-learn-english/blob/master/images/NS-week11/IMG_2708.JPG)
+![Image of Yaktocat](https://github.com/weixiongdi/zhili-learn-english/blob/master/images/NS-week11/IMG_2709.JPG)
+![Image of Yaktocat](https://github.com/weixiongdi/zhili-learn-english/blob/master/images/NS-week11/IMG_2710.JPG)
+![Image of Yaktocat](https://github.com/weixiongdi/zhili-learn-english/blob/master/images/NS-week11/IMG_2711.JPG)
+![Image of Yaktocat](https://github.com/weixiongdi/zhili-learn-english/blob/master/images/NS-week11/IMG_2712.JPG)
+![Image of Yaktocat](https://github.com/weixiongdi/zhili-learn-english/blob/master/images/NS-week11/IMG_2713.JPG)
